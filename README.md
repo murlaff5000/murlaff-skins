@@ -1,0 +1,2 @@
+the ln https://media.discordapp.net/attachments/1197674462028501163/1214003574888071218/screenshot178.jpg?ex=65f787ef&is=65e512ef&hm=43274b6a6f5a57c6e090408917594c928678a972bb51410751b7e6100bb634dc&=&format=webp&width=1573&height=885
+the normal notes https://media.discordapp.net/attachments/1197674462028501163/1214003573982232577/screenshot177.jpg?ex=65f787ef&is=65e512ef&hm=3fab63602e448a864d271ef6521ee05d71c220f0a4ba3417a4a29b291c3b851a&=&format=webp&width=1573&height=885
